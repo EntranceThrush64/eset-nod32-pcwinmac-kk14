@@ -1,4 +1,4 @@
-# 
+# Official ESET NOD32 tools for Mac OS | Best ESET NOD32 tools for PC Windows. Featuring zero-day threat protection and breach monitoring — optimized for maximum performance on every platform.
 
 
 
